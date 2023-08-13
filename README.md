@@ -1,4 +1,4 @@
-### I'm getting my shit together....🌱
+### Getting my stuff together....🌱
 
 <!--
 **maddoxx02/maddoxx02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
