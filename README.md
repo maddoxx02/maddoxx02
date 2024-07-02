@@ -8,7 +8,9 @@ PhD student at ITMO University
 Saint Petersburg, Russia
 
 
-Contact: ireddy@itmo.ru 
+Contact: ireddy@itmo.ru
+
+G Scholar: https://scholar.google.com/citations?hl=en&user=WSJYVQ8AAAAJ
 
 <!--
 **maddoxx02/maddoxx02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
