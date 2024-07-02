@@ -1,5 +1,14 @@
 ### Getting my stuff together....🌱
 
+Research Engineer, Institute of Brain Sciences & ITMO Infochemistry
+
+PhD student at ITMO University 
+
+Saint Petersburg, Russia
+
+
+Contact: ### ireddy@itmo.ru ###
+
 <!--
 **maddoxx02/maddoxx02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
