@@ -1,7 +1,6 @@
 ### Getting my stuff together....🌱
 
-Research Engineer, ITMO University & 
-Institute of Brain Sciences - Russian Academy of Sciences 
+Research Engineer, ITMO University 
 
 PhD student at ITMO University 
 
