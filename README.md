@@ -1,4 +1,4 @@
-### Getting my stuff together....🌱
+### A.T.S. Ireddy
 
 Research Engineer, ITMO University 
 
